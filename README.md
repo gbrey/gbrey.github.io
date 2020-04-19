@@ -2,5 +2,5 @@
 
 HOY CINEEEEEEEEE
 
-![Image](assets/luz.png)
+![Image](assets/IMG_1746.jpeg)
 
